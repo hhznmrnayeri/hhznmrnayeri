@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓   Student of Master's degree, Enterprise Architecture In University<br>✍️   Coding And Drinking Coffee Are My Hobby :))
+🎓 Bachelor's degree, Computer Software Engineering<br>✍️   Coding And Drinking Coffee Are My Hobby :))
 
 
 ## 🌐 Socials:
